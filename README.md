@@ -18,5 +18,6 @@ Here are some ideas to get you started:
 - 🦋 Amber (Zuyue Jiang)
 - 🦋 maths ug @ Imperial｜core trader @ ImperialDAO 
 - 🦋 English｜Mandarin｜Japanese 
-- 🦋 discord/telegram/wechat: @ambervalentinag 
+- 🦋 discord/telegram/wechat: @ambervalentinag
+- 🦋 whatsapp: ‪+44 7394 402061‬
 - 📍 Canary Wharf, London
