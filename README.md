@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 <br/>   + ♡ ( ⌯′-′⌯) ♡ +  +
 <br/> ┏━♡━ U━ U━♡━━┓
 <br/> ♡ FINDING TEAMMATES ♡
-<br/> ┗━━━━♡━━━.♡━┛
+<br/> ┗━━━━♡━━━♡━┛
 - 🦋 Amber (Zuyue Jiang)
 - 🦋 maths ug @ Imperial｜core trader @ ImperialDAO 
 - 🦋 English｜Mandarin｜Japanese 
