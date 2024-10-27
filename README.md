@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🦋 Amber (Zuyue Jiang)
+- 🦋 maths ug @ Imperial｜core trader @ ImperialDAO 
+- 🦋 English｜Mandarin｜Japanese 
+- 🦋 discord/telegram/wechat: @ambervalentinag 
+- 📍 Canary Wharf, London
