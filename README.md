@@ -15,9 +15,9 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-<br/>+♡ +♡ ᕬ ᕬ ♡  +  ♡
++♡ +♡ ᕬ ᕬ ♡  +  ♡
 <br/>  + ♡ ( ⌯′-′⌯) ♡ +  +
-<br/> ┏━♡━ U━ U━♡━━┓
+<br/> ┏━♡━ U━ U━♡━┓
 <br/> ♡ FINDING TEAMMATES ♡
 <br/> ┗━━━━♡━━━ ♡━┛
 - 🦋 Amber (Zuyue Jiang)
