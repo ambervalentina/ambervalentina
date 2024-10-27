@@ -14,7 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-<b>LOOKING FOR HACKATHON TEAMMATES</b>
+
+<br/>+♡ +♡ ᕬ ᕬ ♡  +  ♡
+<br/>  + ♡ ( ⌯′-′⌯) ♡ +  +
+<br/> ┏━♡━ U━ U━♡━━━━━━━┓
+<br/> ♡ FINDING TEAMMATES ♡
+<br/> ┗━━━━♡━━━ ♡━━━━━━━┛
 - 🦋 Amber (Zuyue Jiang)
 - 🦋 maths ug @ Imperial｜core trader @ ImperialDAO 
 - 🦋 English｜Mandarin｜Japanese 
