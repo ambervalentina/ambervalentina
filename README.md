@@ -15,8 +15,8 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-  +♡ +♡ ᕬ ᕬ ♡  +  ♡
-<br/>   + ♡ ( ⌯′-′⌯) ♡ +  +
+ 🫧 +♡ +♡ ᕬ ᕬ ♡  +  ♡
+<br/>  🫧 + ♡ ( ⌯′-′⌯) ♡ +  +
 <br/> ┏━♡━ U━ U━♡━━┓
 <br/> ♡ FINDING TEAMMATES ♡
 <br/> ┗━━━━♡━━━♡━┛
