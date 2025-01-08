@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 <br/> ♡ FINDING TEAMMATES ♡
 <br/> ┗━━━━♡━━━♡━┛
 - 🦋 Amber (Zuyue Jiang)
-- 🦋 maths ug @ Imperial｜core trader @ ImperialDAO 
+- 🦋 maths ug @ Imperial
 - 🦋 English｜Mandarin｜Japanese 
 - 🦋 discord/telegram/wechat: @ambervalentinag
 - 🦋 whatsapp: ‪+44 7394 402061‬
