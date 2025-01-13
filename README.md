@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-### Learning Account 👉 @zuyuejiang
+### Learning Account 👉 [@zuyuejiang](https://github.com/zuyuejiang)
 
 
   +♡ +♡ ᕬ ᕬ ♡  +  ♡
