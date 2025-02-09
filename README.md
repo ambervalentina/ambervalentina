@@ -1,5 +1,5 @@
 # 🎀 **𝚆𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝙰𝚖𝚋𝚎𝚛'𝚜 𝙿𝚛𝚘𝚏𝚒𝚕𝚎!** ✨
-<img align = "right" src="/ambervalentina/images/self_image.JPG" alt="Amber's Icon" width="220">
+<img align = "right" src="https://github.com/ambervalentina/ambervalentina/blob/0a59cdebfd6af7dc96655743d2033a940876b6e9/images/self_image.JPG" alt="Amber's Icon" width="220">
 
 ### Learning Account 👉 [@zuyuejiang](https://github.com/zuyuejiang)
 🦋 Amber
