@@ -2,13 +2,13 @@
 <img align = "right" src="https://github.com/ambervalentina/ambervalentina/blob/0a59cdebfd6af7dc96655743d2033a940876b6e9/images/self_image.JPG" alt="Amber's Icon" width="220">
 
 ### Learning Account 👉 [@zuyuejiang](https://github.com/zuyuejiang)
-🦋 Amber
-🦋 maths ug @ Imperial
-🦋 English｜Mandarin｜Japanese  
-🦋 Blockchain | AI & ML | Cryptography
-📍 Canary Wharf, London
-🌸 Looking for Teammates | Part-Time | **Internships**
-🌸 Open to **Research Collaborations**
+🦋 Amber\
+🦋 maths ug @ Imperial \
+🦋 English｜Mandarin｜Japanese  \
+🦋 Blockchain | AI & ML | Cryptography \
+📍 Canary Wharf, London \
+🌸 Looking for Teammates | Part-Time | **Internships** \
+🌸 Open to **Research Collaborations** \
 🫧 ᴍʏ ᴍᴀꜱᴛᴇʀʏ ᴘʀᴏᴊᴇᴄᴛ ꜱᴛᴀʀᴛꜱ ɪɴ ᴏᴄᴛ 𝟤𝟢𝟤𝟧! 🫧
 
 ---
@@ -97,17 +97,17 @@
 
 ## 📫 **Let's Connect!**  
 <!-- 🌐 [My Personal Website](https://yourwebsite.com)   -->
-💌 **Email:** ambervalentinag@gmail.com  
-💬 **Instagram:** [@ambervalentinag](https://www.instagram.com/ambervalentinag/)
-🔗 **LinkedIn:** [linkedin.com/in/zuyuejiang](https://linkedin.com/in/zuyuejiang)  
+💌 **Email:** ambervalentinag@gmail.com   \
+💬 **Instagram:** [@ambervalentinag](https://www.instagram.com/ambervalentinag/) \
+🔗 **LinkedIn:** [linkedin.com/in/zuyuejiang](https://linkedin.com/in/zuyuejiang)   \
 
 ---
 
 ## 📊 **GitHub Stats & Activity**  
 <div align="center">
-  <img src="https://github-readme-stats.vercel.app/api?username=your-username&show_icons=true&theme=pink" alt="Amber's GitHub Stats" />
+  <img src="https://github-readme-stats.vercel.app/api?username=ambervalentina&show_icons=true&theme=pink" alt="Amber's GitHub Stats" />
   <br/>
-  <img src="https://github-readme-streak-stats.herokuapp.com/?user=your-username&theme=shoujo" alt="GitHub Streak" />
+  <img src="https://github-readme-streak-stats.herokuapp.com/?user=ambervalentina&theme=shoujo" alt="GitHub Streak" />
 </div>
 
 
