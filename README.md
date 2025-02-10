@@ -1,6 +1,9 @@
-# 🎀 **𝚆𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝙰𝚖𝚋𝚎𝚛'𝚜 𝙿𝚛𝚘𝚏𝚒𝚕𝚎!** ✨
-<img align = "right" src="https://github.com/ambervalentina/ambervalentina/blob/0a59cdebfd6af7dc96655743d2033a940876b6e9/images/self_image.JPG" alt="Amber's Icon" width="180">
-<img align = "right" src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExa3U3dWNubGtoNzl2ZTBrcDF6MTk4YzdtbTBsZnhjaXdydzFoeHdwMyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/5Oyaa78rzRaixvweQe/giphy.gif" alt="Amber's Icon" width="100">
+<img align = "right" src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExb283dW96NHZhYmEya3QxejJzNDV1ejJpeTdmeDhuaXMyaHUxa2swayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/lTY8pVIs76YOMDaDjY/giphy.gif" alt="Cinnamonroll" width="70">
+
+# 🎀 **𝚆𝚎𝚕𝚌𝚘𝚖𝚎 𝚝𝚘 𝙰𝚖𝚋𝚎𝚛'𝚜 𝙿𝚛𝚘𝚏𝚒𝚕𝚎!**
+<img align = "right" src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExaG02OGR5dmN2N3ZwOGN0MHJoZGNtNjdqYWJ3MDdvZHB1ajFscDhvNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/llPDx1SKhNrQPif6LI/giphy.gif" alt="Heart" width="150">
+<img align = "right" src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExa3U3dWNubGtoNzl2ZTBrcDF6MTk4YzdtbTBsZnhjaXdydzFoeHdwMyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/5Oyaa78rzRaixvweQe/giphy.gif" alt="Envelop" width="100">
+<img align = "right" src="https://github.com/ambervalentina/ambervalentina/blob/0a59cdebfd6af7dc96655743d2033a940876b6e9/images/self_image.JPG" alt="Amber's Icon" width="100">
 
 ### My Learning Account 👉 [@zuyuejiang](https://github.com/zuyuejiang)
 🦋 Amber\
