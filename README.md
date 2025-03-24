@@ -6,11 +6,11 @@
 
 ### My Learning Account 👉 [@zuyuejiang](https://github.com/zuyuejiang)
 🦋 Amber\
-🦋 maths ug @ Imperial \
+🦋 maths ug @ Imperial ｜incoming dev intern @ BNP Paribas\
 🦋 English｜Mandarin｜Japanese  \
 🦋 Blockchain | AI & ML | Cryptography \
 📍 Canary Wharf, London \
-🌸 Looking for Teammates | Part-Time | **Internships** \
+🌸 Looking for Teammates | Part-Time | Internships \
 🌸 Open to **Research Collaborations** \
 🫧 ᴍʏ ᴍᴀꜱᴛᴇʀʏ ᴘʀᴏᴊᴇᴄᴛ ꜱᴛᴀʀᴛꜱ ɪɴ ᴏᴄᴛ 𝟤𝟢𝟤𝟧! 🫧
 
