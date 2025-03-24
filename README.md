@@ -8,7 +8,7 @@
 🦋 Amber\
 🦋 maths ug @ Imperial ｜incoming dev intern @ BNP Paribas\
 🦋 English｜Mandarin｜Japanese  \
-🦋 Blockchain | AI & ML | Cryptography \
+🦋 Blockchain | AI & ML | Trading | Data \
 📍 Canary Wharf, London \
 🌸 Looking for Teammates | Part-Time | Internships \
 🌸 Open to **Research Collaborations** \
