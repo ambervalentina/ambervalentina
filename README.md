@@ -8,7 +8,7 @@
 👩 Amber \
 🦋 maths  @ Imperial\
 🦋 software dev intern @ BNP Paribas\
-🦋 UG researcher @ Imperial Data Science Institute
+🦋 UG researcher @ Imperial Data Science Institute\
 🫧 English｜Mandarin｜Japanese  \
 🫧 Blockchain | AI & ML | Trading | Data \
 📍 Canary Wharf, London \
