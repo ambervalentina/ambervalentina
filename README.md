@@ -5,14 +5,14 @@
 <img align = "right" src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExa3U3dWNubGtoNzl2ZTBrcDF6MTk4YzdtbTBsZnhjaXdydzFoeHdwMyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/5Oyaa78rzRaixvweQe/giphy.gif" alt="Envelop" width="100">
 
 ### My Learning Account 👉 [@zuyuejiang](https://github.com/zuyuejiang)
-🦋 Amber\
-🦋 maths ug @ Imperial ｜incoming dev intern @ BNP Paribas\
-🦋 English｜Mandarin｜Japanese  \
-🦋 Blockchain | AI & ML | Trading | Data \
+👩 Amber \
+🦋 maths  @ Imperial\
+🦋 software dev intern @ BNP Paribas\
+🦋 UG researcher @ Imperial Data Science Institute
+🫧 English｜Mandarin｜Japanese  \
+🫧 Blockchain | AI & ML | Trading | Data \
 📍 Canary Wharf, London \
-🌸 Looking for Teammates | Part-Time | Internships \
-🌸 Open to **Research Collaborations** \
-🫧 ᴍʏ ᴍᴀꜱᴛᴇʀʏ ᴘʀᴏᴊᴇᴄᴛ ꜱᴛᴀʀᴛꜱ ɪɴ ᴏᴄᴛ 𝟤𝟢𝟤𝟧! 🫧
+🌸 Looking for **Part-time 12M Contractor** 
 
 
 
